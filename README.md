@@ -1,5 +1,7 @@
 # latian
 
-latian apdhahudhauu  haloo gess
+kita ini di main gini
+
 
 nahh di cabang gini
+
