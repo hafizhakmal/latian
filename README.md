@@ -1,6 +1,9 @@
 # latian
+
 latian apdhahudhauu  haloo gess
-pisah cok
+
+pisah cok 
+gmn yakk
 
 
 cekk
