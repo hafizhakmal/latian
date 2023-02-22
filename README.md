@@ -1,5 +1,5 @@
 # latian
-latian apa aja  haloo gess
+latian apdhahudhauu  haloo gess
 pisah cok
 
 
