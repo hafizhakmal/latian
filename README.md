@@ -1,6 +1,11 @@
 # latian
-latian apa ikcijisds
-pisah cok
+
+latian apdhahudhauu  haloo gess
+
+pisah cok 
+gmn yakk
 
 
 cekk
+
+izin ngerusak
