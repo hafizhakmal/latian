@@ -4,3 +4,5 @@ pisah cok
 
 
 cekk
+
+izin ngerusak
