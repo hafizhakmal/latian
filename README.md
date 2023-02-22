@@ -1,6 +1,6 @@
 # latian
 
-gua rusak di main gini
+gua kok ga dinotice di main gini
 
 
 nahh di cabang gini
