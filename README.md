@@ -1,3 +1,3 @@
 # latian
-latian apa aja
-haloo gess
+latian apa aja  haloo gess
+pisah cok
