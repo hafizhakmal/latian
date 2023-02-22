@@ -1,7 +1,6 @@
 # latian
 
-kita ini di main gini
-
+gua rusak di main gini
 
 nahh di cabang gini
 
