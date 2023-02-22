@@ -2,10 +2,4 @@
 
 latian apdhahudhauu  haloo gess
 
-pisah cok 
-gmn yakk
-
-
-cekk
-
-izin ngerusak
+nahh di cabang gini
