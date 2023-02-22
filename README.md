@@ -1,11 +1,4 @@
 # latian
 
-latian apdhahudhauu  haloo gess
+kita ini di main gini
 
-pisah cok 
-gmn yakk
-
-
-cekk
-
-izin ngerusak
