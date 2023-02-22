@@ -3,6 +3,4 @@
 kita ini di main gini
 
 
-nahh di cabang gini
-
- 
+nahh di cabang gin
